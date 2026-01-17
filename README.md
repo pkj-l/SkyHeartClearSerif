@@ -30,4 +30,4 @@
 
 以及以上字体所鸣谢的字体。
 
-谨以此字体致敬 Aqours 歌曲《空も心も晴れるから（天空和心扉都会雨过天晴）》（[网易云音乐](https://music.163.com/song?id=1832899385) | [QQ 音乐](https://y.qq.com/n/ryqq_v2/songDetail/280058036) | [YouTube](https://www.youtube.com/watch?v=rmBMuC0fdm8)）。
+_谨以此字体致敬 Aqours 歌曲《空も心も晴れるから（天空和心扉都会雨过天晴）》。_

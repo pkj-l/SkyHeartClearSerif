@@ -28,4 +28,4 @@
 
 以及以上字體所鳴謝的字體。
 
-謹以此字體致敬 Aqours 歌曲《空も心も晴れるから（天空和心扉都會雨過天晴）》（[網易雲音樂](https://music.163.com/song?id=1832899385) | [QQ 音樂](https://y.qq.com/n/ryqq_v2/songDetail/280058036) | [YouTube](https://www.youtube.com/watch?v=rmBMuC0fdm8)）。
+_謹以此字體致敬 Aqours 歌曲《空も心も晴れるから（天空和心扉都會雨過天晴）》。_
